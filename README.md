@@ -7,4 +7,4 @@ why did i create this? to scare dumb children
 
 should you use this to jack off? no
 
-send this to some dumb ass retard kid who wants cracked astolfo, latest build in releases
+send this to some dumb ass r word kid who wants cracked astolfo, latest build in releases
